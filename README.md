@@ -1,2 +1,3 @@
 # 200 GitHub Followers
-Thank you all so much for 200 GitHub followers!
+
+On the afternoon of Tuesday 2nd May 2022, we hit 200 followers on Github! 🎉🎉🎉
